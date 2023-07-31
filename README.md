@@ -1,16 +1,14 @@
-### Hi there 👋
+### 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙨𝙩𝙧𝙖𝙣𝙜𝙚𝙧...🐒🐵 
 
-<!--
-**Ryckxp0/ryckxp0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ｒｙｃｋ＇ｓ ｐｒｏｆｉｌｅ🇧🇷
 
-Here are some ideas to get you started:
+𝓘'𝓶 𝓼𝓽𝓾𝓭𝔂𝓲𝓷𝓰 𝓪𝓽 ![alura](https://www.alura.com.br)
+𝓘'𝓶 𝓭𝓮𝓿𝓮𝓵𝓸𝓹𝓲𝓷𝓰 𝓲𝓷 𝓽𝓱𝓮 **𝓳𝓪𝓿𝓪𝓼𝓬𝓻𝓲𝓹𝓽** 𝓵𝓪𝓷𝓰𝓾𝓪𝓰𝓮
+𝓘 𝓾𝓼𝓮 𝓽𝓱𝓲𝓼 𝓼𝓹𝓪𝓬𝓮 𝓯𝓸𝓻 **𝓶𝔂 𝓸𝓻𝓰𝓪𝓷𝓲𝔃𝓪𝓽𝓲𝓸𝓷 𝓪𝓷𝓭 𝓼𝓱𝓪𝓻𝓲𝓷𝓰 𝓸𝓯 𝓹𝓻𝓸𝓳𝓮𝓬𝓽𝓼 𝓭𝓮𝓿𝓮𝓵𝓸𝓹𝓮𝓭**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### ᴛᴏ ᴄᴏɴᴛᴀᴄᴛ ᴍᴇ📫
+
+**_emanuel.escola.pr.gov.br_**
+@𝐫𝐲𝐜𝐤𝐱𝐩𝟎
+
+![.](https://tenor.com/pt-BR/view/thumbs-up-funny-legend-of-zelda-gif-25083695)
