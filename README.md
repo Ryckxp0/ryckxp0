@@ -10,4 +10,4 @@ uso esse espaço para me organizar compartilhar projetos
 **_emanuel.escola.pr.gov.br_**
 @𝐫𝐲𝐜𝐤𝐱𝐩𝟎
 
-![.](https://tenor.com/pt-BR/view/thumbs-up-funny-legend-of-zelda-gif-25083695)
+![](https://media.tenor.com/9X1nnUbe-EkAAAAd/thumbs-up-funny.gif)
