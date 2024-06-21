@@ -1,6 +1,9 @@
 ### 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙨𝙩𝙧𝙖𝙣𝙜𝙚𝙧...🐒🐵 
 
+# ![snake gif](https://github.com/Ryckxp0/Ryckxp0/blob/output/github-contribution-grid-snake.gif)
+
 Ｒｙｃｋ＇ｓ ｐｒｏｆｉｌｅ🇧🇷
+
 
 estou estudando na![alura](https://www.alura.com.br)
 estou me desenolvendo na liguagem javascript
